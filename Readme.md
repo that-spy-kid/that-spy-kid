@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I am Vinay Kumar <br> 
+I'm Vinay Kumar <br> 
 A Computer Science Engineer, loves to Code and Bulid 👨‍💻.  
 
 
