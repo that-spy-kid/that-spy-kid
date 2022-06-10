@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 I'm Vinay Kumar <br> 
-A Computer Science Engineer, loves to Code and Bulid 👨‍💻.  
+A Computer Science Engineer, loves to Code and Build 👨‍💻.  
 
 
 ### Catch Me At 👇 <br>
